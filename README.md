@@ -1,2 +1,2 @@
-# AyanChoudhury.github.io
-Personal Website of Ayan Choudhury
+# Debapriya.github.io
+Personal Website of Debapriya Bhattacharya
